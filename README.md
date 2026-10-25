@@ -1,1 +1,0 @@
-# Training-hq-v2
